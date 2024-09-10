@@ -1,2 +1,2 @@
 antractica is something yes yes 
-and is white 
+and has bears on it
